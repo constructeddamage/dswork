@@ -1,2 +1,0 @@
--- Created by ConstructedDamage
--- https://discord.arjendevstudios.nl
